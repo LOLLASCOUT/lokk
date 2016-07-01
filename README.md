@@ -1,0 +1,2 @@
+# lokk
+koj te eba
